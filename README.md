@@ -1,6 +1,6 @@
 Oioi, sou a Giulia Aguiar.
 
-Entusiasta da TI | Aprendiz de Desenvolvimento de Softwares | Freelancer
+QA (Automaçāo) | Freelancer | Estudante de ADS
 
 [Linkedin](https://www.linkedin.com/in/giulia-aguiar-3a515217/)
 
